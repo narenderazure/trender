@@ -1,1 +1,1 @@
-hi narender
+current generation job is mandatory.
